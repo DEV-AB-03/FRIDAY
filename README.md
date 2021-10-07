@@ -1,0 +1,2 @@
+# FRIDAY
+FRIDAY AI
